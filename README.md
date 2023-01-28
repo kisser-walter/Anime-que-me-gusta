@@ -8,3 +8,4 @@
 4 Tales of Demons and Gods (la temporada 7)
 5 Doupo Cangqiong 
 (van por la temporada 5 no es recomendado mirar serie live action o dorama no es muy buena)
+ estoy actualizando los anime que estoy biendo pronto tendran mas datos.
